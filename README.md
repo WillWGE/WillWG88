@@ -8,6 +8,8 @@ I study at School of Electronics and Informatics Engineering(STEI).
 
 My linkedin profile: https://www.linkedin.com/in/william-gunawan-038ab01aa/
 
+My medium blogs: https://medium.com/@18220077
+
 
 
 
